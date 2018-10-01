@@ -12,7 +12,7 @@ Buy:
 2. house
 2. boat
 
-> I have a lot bigger nuclear button than you!
+> I have a lot bigger nuclear button than you! wtf?
 
 
 
